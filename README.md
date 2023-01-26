@@ -10,4 +10,4 @@
 
 💙 Join the channel to see more videos like this. [Tech Van-Ess](https://www.youtube.com/@techvanesstube)
 
-![preview img](/preview.png)
+![preview img](/Pc Preview.png)
